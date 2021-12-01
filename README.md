@@ -1,2 +1,2 @@
 # CheapFoodsYouMayEnjoy
-Foods list, This is completely optional and you are not being forced to buy any of these products. When making these foods, please keep an eye out on your food as they will likely burn if left unattended. 
+Foods list, This is completely optional and you are not being forced to buy any of these products. When making these foods, please keep an eye out on your food as they will likely burn if left unattended. In the event that they are burnt and your house has gone ablaze, please remain calm, contact 911, and leave your house. We are not responsible for any injuries attained while reading this list.
